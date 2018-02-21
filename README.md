@@ -1,3 +1,4 @@
 Tomy Ramos
-Jhonny Depp
+Jackie Chan
 Tom Cruise 
+Brad Pitt
